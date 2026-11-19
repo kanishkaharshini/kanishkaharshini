@@ -2,9 +2,9 @@
 
 🎓 Computer Science Engineering Student
 
-☁️ Aspiring Data Engineer
+☁️ Aspiring Network and Security Engineer
 
-🤖 AI & Machine Learning Enthusiast
+🤖 AI & Machine Learning, Digital Media Enthusiast
 
 ## Connect with Me
 
